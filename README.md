@@ -1,0 +1,2 @@
+# Tutingtas
+BatuGuntingKertas
